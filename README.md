@@ -1,2 +1,2 @@
 # redirect-notice
-Please view the readme, as the owner of this account has migrated elsewhere.
+Hello! The original owner of this account has migrated elsewhere; you may visit their website: , for more information.
